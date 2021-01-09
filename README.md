@@ -5,5 +5,3 @@ developed on Drupal, and has support multiple features, such as google calendar 
 
 The team was consisted with multiple middle school and high school students, the team member across from multiple continental, 
 include US, China and Singapore.
-
-If you have interesting to join our team, please send email to nyacups@gmail.com or nyeastufo@gmail.com.
